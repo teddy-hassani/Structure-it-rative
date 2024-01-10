@@ -1,1 +1,1 @@
-# Structure-it-rative
+# Structure-itérative
